@@ -3,8 +3,8 @@
 
   ∧,,,∧
  (• ⩊ •)
-|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
-|   My name is xxx, i'm a 14 years old brazilian who's                                                           |
+|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
+|   My name is Gabriela, i'm a 14 years old brazilian who's                                                      |
 |   deeply passionate about knowledge!                                                                           |
 |                                                                                                                |
 |  　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦  .　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .　⁺ . |
