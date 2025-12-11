@@ -1,16 +1,18 @@
-## Hi there 👋
+🌈🌻 Hi Earth!(and other planets too!)
 
-<!--
-**gabilinbreu/gabilinbreu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ∧,,,∧
+ (• ⩊ •)
+|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
+|   My name is Gabriela, i'm a 14 years old brazilian who's                                                      |  
+|   deeply passionate about knowledge!                                                                           |       
+|                                                                                                                |
+|  　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦  .　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .　⁺ . |
+| ⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹ ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹ ︶⊹︶︶୨୧︶︶
+|                                                                                                                |
+|  ♡ 🍓i'm currently a highschooler studying biotechnology at a technical school                                |
+|  ♡ 🧬i plan on working in the innovation field and merge engineering/computation with biological sciences     |
+|  ♡ 🎮i'm a certified indie-game lover                                                                         |
+|  ♡ 🎶i enjoy art on all it's forms, specially music                                                           |
+|  ♡ ✨i'm currently developing a nonprofit organization that intiates underserved children on science          |
+|  ♡ 🍰FunFact!i love colors, animals and strawberry cheesecake!!                                               |
+|_______________________________________________________________________________________________________________ 
