@@ -3,7 +3,7 @@
 
   ∧,,,∧
  (• ⩊ •)
-|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
+|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
 |   My name is Gabriela, i'm a 14-year-old brazilian who's                                                       |
 |   deeply passionate about knowledge!                                                                           |
 |                                                                                                                |
