@@ -4,7 +4,7 @@
   ∧,,,∧
  (• ⩊ •)
 |￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣
-|   My name is Gabriela, i'm a 14-year-old brazilian who's                                                       |
+|   My name is Gabriela, i'm a 15-year-old brazilian who's                                                       |
 |   deeply passionate about knowledge!                                                                           |
 |                                                                                                                |
 |  　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦  .　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .　⁺ . |
